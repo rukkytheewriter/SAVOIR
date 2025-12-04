@@ -1,1 +1,1 @@
-rukky likes potatoes
+rukky likes amala
